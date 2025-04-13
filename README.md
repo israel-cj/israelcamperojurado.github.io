@@ -1,1 +1,0 @@
-# israelcamperojurado.github.io
